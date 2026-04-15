@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **at Coding Factory by Esiee-it**
 
-- 📫 How to reach me **marcuz.vivien@gmail.com**
+- 📫 How to reach me **marcuz.vivien@protonmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
